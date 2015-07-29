@@ -7,7 +7,7 @@
 aqui é o Minato
 eu sou o Líder da tribo na vdd
 o tavas é o dono da conta só
-e me ajuda na adm da tribo
+e me ajuda na adm da tribo 
 eu tive 2 problemas familiares nessas 3 semanas passadas
 antes disso não sei se lembra
 mais a tribo era SUPER ATIVA
