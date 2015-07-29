@@ -1,4 +1,3 @@
-# skype
 [29-07-2015 23:33:24] *** Diogooh César adicionou Tiago Reis a.k.a NewBlack ***
 [29-07-2015 23:33:48] Lucas ( Minato ): vou copiar e colar o que eu ja falei pro New acompanhar
 [29-07-2015 23:33:55] Diogooh César: ok obrigado
@@ -7,7 +6,7 @@
 aqui é o Minato
 eu sou o Líder da tribo na vdd
 o tavas é o dono da conta só
-e me ajuda na adm da tribo 
+e me ajuda na adm da tribo
 eu tive 2 problemas familiares nessas 3 semanas passadas
 antes disso não sei se lembra
 mais a tribo era SUPER ATIVA
@@ -89,3 +88,26 @@ analisava membros entre outras coisas
 [00:05:26] Frederic Fernandes: e também era importante
 [00:05:32] Lucas ( Minato ): É o seguinte a primeira coisa que vamos fazer
 [00:05:40] Frederic Fernandes: se ele não mostrou interesse no meu facto, porque haveria de mostrar quando saiu
+[00:05:42] Frederic Fernandes: *sai
+[00:05:53] Lucas ( Minato ): é pegar os membros que são participativos montar um grupo com eles
+[00:05:55] tavas: frederic
+[00:06:00] Lucas ( Minato ): os membros que restarem que não fazem nada
+[00:06:08] Lucas ( Minato ): irá virar comida para agente crescer amigo
+[00:06:08] tavas: ve oq aconteceu na tribo
+[00:06:14] tavas: dps da tua mp
+[00:06:14] tavas: sff
+[00:06:40] Lucas ( Minato ): Nosso objetivo
+[00:06:43] Lucas ( Minato ): é fortalecer os bons
+[00:06:52] Lucas ( Minato ): e comer os que não participam e não se interessam
+[00:07:02] Frederic Fernandes: Nos entramos, mas os membros precisam de ser certificados, se são bons ou nao
+[00:07:12] Lucas ( Minato ): fortalecendo os bons conseguimos um ótimo grupo
+[00:07:18] Lucas ( Minato ): e teremos nossa base formada
+[00:07:20] tavas: frederic
+[00:07:22] tavas: eu normalmente
+[00:07:25] tavas: raramente respondo
+[00:07:29] tavas: quando acordo
+[00:07:36] Lucas ( Minato ): se quiser até te deixo participar do planejamento
+[00:07:37] tavas: pq tenho mt mp
+[00:07:40] Lucas ( Minato ): e verá o que irei fazer
+[00:07:40] tavas: + ir farmar
+[00:07:58] tavas: acabo por ler so
