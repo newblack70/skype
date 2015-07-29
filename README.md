@@ -111,3 +111,5 @@ analisava membros entre outras coisas
 [00:07:40] Lucas ( Minato ): e verá o que irei fazer
 [00:07:40] tavas: + ir farmar
 [00:07:58] tavas: acabo por ler so
+[00:08:35] Lucas ( Minato ): não sei qual é sua experiencia no jogo
+[00:08:37] Frederic Fernandes: Fazemos assim então, eu pelo menos estou disposto a tratar de assuntos da tribo
