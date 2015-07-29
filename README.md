@@ -113,3 +113,43 @@ analisava membros entre outras coisas
 [00:07:58] tavas: acabo por ler so
 [00:08:35] Lucas ( Minato ): não sei qual é sua experiencia no jogo
 [00:08:37] Frederic Fernandes: Fazemos assim então, eu pelo menos estou disposto a tratar de assuntos da tribo
+[00:08:48] Lucas ( Minato ): mais sabe a diferença entre mass recruit e pre made ?
+[00:08:53] Frederic Fernandes: se não tens tempo para isso, diz para tratar disso. As coisas tem de mudar
+[00:09:06] tavas: mano eu n sou o lider
+[00:09:12] tavas: líder e o minato
+[00:09:15] Lucas ( Minato ): eu sou o lider
+[00:09:16] tavas: sou o dono da conta
+[00:09:24] tavas: eu ajudo o minato
+[00:09:25] tavas: noq consigo
+[00:09:27] Frederic Fernandes: Pronto, então resolvam isso. Nos queremos uma liderança ativa
+[00:09:29] Lucas ( Minato ): só usamos a conta do tavas pq ele tinha pps
+[00:09:34] Lucas ( Minato ): e terá
+[00:09:41] Lucas ( Minato ): quer participar para ver isso acontecer ?
+[00:09:52] Frederic Fernandes: participar em que?
+[00:09:58] Lucas ( Minato ): do conselho ?
+[00:10:24] Lucas ( Minato ): irá ver tudo por dentro
+[00:10:29] Frederic Fernandes: Nos podemos participar, mas se eu entrar, temos de ser rigorosos...
+[00:10:53] Frederic Fernandes: O mundo começou a cerca de 1 mês e meio, e há jogadores com 2000 pontos ainda
+[00:10:55] tavas: eu já tinha pedido para um de vcs ir po concelho
+[00:11:03] Lucas ( Minato ): sim sim
+[00:11:10] Lucas ( Minato ): tanto que mandei embora alguns hoje
+[00:11:13] Lucas ( Minato ): nao sei se vc vio
+[00:11:14] Lucas ( Minato ): como eu falei
+[00:11:18] Lucas ( Minato ): eu estava com muitos problemas
+[00:11:20] Lucas ( Minato ): voltei no Domingo
+[00:11:23] Lucas ( Minato ): analisei
+[00:11:25] tavas: eu tirei os que noblaram aldeias com - de 1k
+[00:11:26] Lucas ( Minato ): e reformulei
+[00:11:29] Lucas ( Minato ): hj mandei embora
+[00:11:31] Lucas ( Minato ): amanha tera
+[00:11:33] Lucas ( Minato ): coletiva
+[00:11:38] Frederic Fernandes: 1º É dar sitter em todos, quero ver como cada um se está a desenvolver...
+[00:11:38] Lucas ( Minato ): falando sobre alguns atualizações
+[00:11:40] Lucas ( Minato ): do que vai acontecer
+[00:11:45] Lucas ( Minato ): sim
+[00:11:47] Lucas ( Minato ): sitter
+[00:11:47] tavas: vamos mudar a regra
+[00:11:48] Lucas ( Minato ): e ver tropas
+[00:11:49] tavas: de noblar aldeia
+[00:11:50] tavas: para 2k
+[00:12:03] Frederic Fernandes: Amigos, venham TS, é mais simples de falar
